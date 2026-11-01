@@ -1,10 +1,6 @@
 
 
-https://github.com/user-attachments/assets/80943d44-4f48-4342-bdad-c718860147e4
-
-
-
-
+https://github.com/user-attachments/assets/8ffbef49-3d81-4a8d-a725-b77745ae1b50
 
 # Бот заявок на дизайн для медиа ВУЗа
 
